@@ -4,11 +4,10 @@ This is a tutorial in how to use GitHub for my Design 211 course in Spring 2016 
 PROPOSED DJ's
 - Alcee
 - Morgan
-- DJ Jazzy Jamie
 
 LIVE ENTERTAINMENT
 - Dennis will play the "Electric Kumbaya" and dance in a panda suit with his Dad
 
 FOOD ITEMS
 - Please bring homemade food from your family's secret formulas
-
+- fried rice or sushi? :) 
